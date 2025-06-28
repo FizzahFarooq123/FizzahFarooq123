@@ -17,7 +17,7 @@ I’m a passionate and curious software engineering student with a strong founda
 
 - Feel free to connect or collaborate with me:
 - 💼 [LinkedIn](https://www.linkedin.com/in/fizzah-farooq-204279294/) 
-- 📧 fizzahfarooq@email.com 
+- 📧 fizzahfarooq111@gmail.com 
 
 
 ---
